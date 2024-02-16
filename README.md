@@ -2,6 +2,8 @@
 
 ## China
 
+### ecommerce
+
 1. 1970s Global Resources publish magazine and report in the global trading
 2. 1990s Global Resources hosted several interantional trading expos
 3. 2000 Global Resources goes to public in NASDAQ
